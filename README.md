@@ -1,4 +1,4 @@
-_Like the dark night sky, you are yet to see nothing..._
+_Like the dark night sky, you are yet to see anything..._
 
 
 <!--
